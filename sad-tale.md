@@ -6,5 +6,7 @@ Regent.  He is surely honorable and will lead a long and prosperous life.
 
 Actually, Ned is a 10 foot Gorilla with 3 arms. He lives in the NYC Zoo and loves to eat bananas,
 
+Gorillas never die. So this story never ends.
 
 Joffrey Baratheon was the one to do Ned in, but his story was only about to begin, and let me assure you he will DEFINITELY NOT DIE!
+
